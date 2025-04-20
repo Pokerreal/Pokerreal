@@ -20,7 +20,7 @@ En este apartado podréis ver los distintos Write-Ups de maquinas que vaya resol
 
 ## 🔗 Conecta conmigo: 🔗
 - **Email:** ivymilan195@gmail.com
-- **LinkedIn:** [Iván Millán][(https://www.linkedin.com/in/iván-millán-espada-a6875a14b/)]
+- **LinkedIn:** [Iván Millán](https://www.linkedin.com/in/iván-millán-espada-a6875a14b/)
 
 ---
 
